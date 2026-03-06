@@ -5,7 +5,7 @@
 
 						 			 ‎ 	⊹₊˚‧︵‿₊୨「 ✦ 𝓐𝓰𝓪𝓹𝓪𝓷𝓽𝓱𝓾𝓼/𝓨𝓾𝓲 ✦ 」୧₊‿︵‧˚₊⊹
 	‎  					  					 	‎ ‎ 	 	𝘏𝘦/𝘛𝘩𝘦𝘺 | 𝘈𝘨𝘦𝘯𝘥𝘦𝘳
-									[ Wriolette, Capittore & Focalette/Neuvifuri please 𝘐𝘕𝘛.ᐟ.ᐟ ]
+							[ Wriolette, Zhonglette, Capittore & Focalette/Neuvifuri please 𝘐𝘕𝘛.ᐟ.ᐟ ]
    		   	 	" I get very awkward & nervous in first interactions, but I'm always happy to interact with others! "
 						" Mostly I use gestures rather than speaking and would prefer to sit in silence. "
         	        ,, Please do whisper if you wish to interact as I am AFK or Offtab most of the time''
