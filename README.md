@@ -9,7 +9,7 @@
 		  	  	  	  	  	        [ Wriolette, Zhonglette & Capittore please 𝘐𝘕𝘛.ᐟ.ᐟ ]
 							
    				   " I'm very awkward & quiet, but I'm always happy to interact/make friends with others! "
-						" I draw and do art commissions if anyone is interested ^_^ (check my carrd!) "
+						" I draw and do art commissions if anyone is interested ^_^ (check my Vgen!) "
                                  ,, AFK most of the time | delayed replies to whispers ''
 	
                                           [ .ᐟ.ᐟ I block/hide people freely .ᐟ.ᐟ ]
