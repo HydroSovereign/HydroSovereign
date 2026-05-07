@@ -4,12 +4,12 @@
 
 
 
-						   		      ⊹₊˚‧︵‿₊୨「 ✦ 𝓐𝓰𝓪𝓹𝓪𝓷𝓽𝓱𝓾𝓼/𝓨𝓾𝓲 ✦ 」୧₊‿︵‧˚₊⊹
+						   	      ⊹₊˚‧︵‿₊୨「 ✦ 𝓐𝓰𝓪𝓹𝓪𝓷𝓽𝓱𝓾𝓼/𝓐𝓷𝓭𝓻𝓮𝔀/𝓨𝓾𝓲 ✦ 」୧₊‿︵‧˚₊⊹
 	‎  					     		   			  	 𝘏𝘦/𝘛𝘩𝘦𝘺 | 𝘈𝘨𝘦𝘯𝘥𝘦𝘳
 		  	  	  	        	                [ Wriothesley 𝘐𝘕𝘛 I BEG.ᐟ.ᐟ ]
 							
-  				      " I'm usually very awkward & quiet, but I'm always happy to interact with others! "
-				  	             (Although I do get VERY nervous on first impressions... )
+  			    " I'm usually very awkward & quiet, but I'm always happy to interact/make friends with others! "
+				  	             ( Although I do get VERY nervous on first impressions... )
 						" I draw and do art commissions if anyone is interested ^_^ (check my Vgen!) "
                                    ,, AFK most of the time | delayed replies to whispers ''
 	
