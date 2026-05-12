@@ -8,13 +8,13 @@
 	‎  					     		   			  	 𝘏𝘦/𝘛𝘩𝘦𝘺 | 𝘈𝘨𝘦𝘯𝘥𝘦𝘳
 		  	  	  	        	                [ Wriothesley 𝘐𝘕𝘛 I BEG.ᐟ.ᐟ ]
 							
-  			    " I'm usually very awkward & quiet, but I'm always happy to interact/make friends with others! "
+  			    ⟢" I'm usually very awkward & quiet, but I'm always happy to interact/make friends with others! "
 				  	             ( Although I do get VERY nervous on first impressions... )
-						" I draw and do art commissions if anyone is interested ^_^ (check my Vgen!) "
+						⟢" I draw and do art commissions if anyone is interested ^_^ (check my Vgen!) "
                                    ,, AFK most of the time | delayed replies to whispers ''
 	
                                        [ .ᐟ.ᐟ I block/hide/unfriend people freely .ᐟ.ᐟ ]
                                                 ( no hard feelings please! )
 									
 									  	 ‎ 	       "artworks made by me"‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎	 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎ 
-‎  ‎ ‎ ‎ ‎                     ‎ ‎ ‎     ‎  ‎ ‎ ‎‎  ‎ ‎  ‎ ‎    ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎  ‎    ‎  ‎ ‎  ‎ ‎ ‎                                                                      ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎      ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎  ‎                     ‎ ‎   															    						         		‎ ‎[Atabook!](https://agapanthus.atabook.org/) , [Strawpage!](https://agapanthus.straw.page/) 
+‎  ‎ ‎ ‎ ‎                     ‎ ‎ ‎     ‎  ‎ ‎ ‎‎  ‎ ‎  ‎ ‎    ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎ ‎  ‎    ‎  ‎ ‎  ‎ ‎ ‎                                                                      ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎      ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎  ‎                     ‎ ‎   															    						         ‎[𝕬𝖙𝖆𝖇𝖔𝖔𝓴](https://agapanthus.atabook.org/) ✦ [𝕾𝖙𝖗𝖆𝖜𝖕𝖆𝖌𝖊](https://agapanthus.straw.page/) ✦ [𝓥𝖌𝖊𝖓](https://vgen.co/yuikunii) ✦ [𝓣𝖎𝓴𝖙𝖔𝓴](https://www.tiktok.com/@yuikunii) 
